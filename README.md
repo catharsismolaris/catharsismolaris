@@ -2,7 +2,7 @@
 - 👀 I’m interested in video games, drawing, music and of course programming!
 - 🌱 I’m currently learning how to code in Python (I just recently learned the basics)
 - 💞️ I’m looking to collaborate on video game related projects
-- 📫 How to reach me: Discord- error404#6136
+- 📫 How to reach me: Discord- error404#6136, Instagram- chooses_maurene
 
 <!---
 catharsismolaris/catharsismolaris is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
